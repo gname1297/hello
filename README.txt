@@ -5,3 +5,5 @@ GIT Command in linux
 vs code 
 chages
 ncjhgvjhbkm
+
+mvjhvjgkb , n
